@@ -24,7 +24,7 @@
 
 #### 📫 Connect with Me:
 - ✉️ Email: [Osalama174@gmail.com | o.salama2374@nu.edu.eg]
-- 💼 LinkedIn: [](https://www.linkedin.com/in/omar-isleem-a1692b319?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BdcHq9QdAQ0aZ8Hee8yjp0g%3D%3D)]
+- 💼 LinkedIn: [(https://www.linkedin.com/in/omar-isleem-a1692b319?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BdcHq9QdAQ0aZ8Hee8yjp0g%3D%3D)]
 
 
 
